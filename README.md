@@ -2,6 +2,7 @@
 
 yaoi was born on 11.03.20 
 
+actual info in rentry 😝
 ![guh](https://github.com/wooftrick/wooftrick/assets/168577328/c01b1cc9-16b3-4556-b222-e1413a83e5f0)
 
 ![peewent](https://github.com/puptrick/puptrick/assets/168577328/16013631-a9d3-44a5-a95a-729e305b92dc) ![holyshit](https://github.com/wooftrick/wooftrick/assets/168577328/7f708567-7689-471e-aec9-47054b800ee2) ![YES](https://github.com/wooftrick/wooftrick/assets/168577328/74cfbfee-cddc-41bf-a3f8-e37f34a01600)![unnamed (1)](https://github.com/wooftrick/wooftrick/assets/168577328/defcf5a4-748d-47be-9be5-cdc3ff7b5941)
