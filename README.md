@@ -1,4 +1,4 @@
-૮˶- ﻌ -˶ა⌒)ᦱ patrick/lucien 🦴 18 he him 𖤐 i love pete sm 
+૮˶- ﻌ -˶ა⌒)ᦱ 🦴 18 he him 𖤐 i love pete sm 
 
 yaoi was born on 11.03.20 
 
