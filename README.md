@@ -1,7 +1,5 @@
 ૮˶- ﻌ -˶ა⌒)ᦱ 🦴 18 he him 𖤐 i love pete sm 
 
-yaoi was born on 11.03.20 
-
 actual info in rentry 😝
 ![guh](https://github.com/wooftrick/wooftrick/assets/168577328/c01b1cc9-16b3-4556-b222-e1413a83e5f0)
 
