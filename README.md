@@ -1,7 +1,6 @@
 ![nugget](https://github.com/user-attachments/assets/6d46317a-4c47-4465-8248-bf14952bae71)
 
-when a vampiric butch is monologuing you shut up and listen
-
+luna snow mains matter more
 
 
 ![image](https://github.com/user-attachments/assets/57982094-a537-4bee-8f9c-49db1766bbba) 
