@@ -1,4 +1,4 @@
-![nugget](https://github.com/user-attachments/assets/6d46317a-4c47-4465-8248-bf14952bae71)
+![hongjoong](https://github.com/user-attachments/assets/626237b8-1f78-4d63-aebb-e98e459d6774)
 
 luna snow mains matter more
 
@@ -21,7 +21,12 @@ luna snow mains matter more
 ![image](https://github.com/user-attachments/assets/d96614ae-cc5c-432d-9c90-8fab65dd5cc7)
 ![image](https://github.com/user-attachments/assets/b17e7106-16e7-4954-88c8-6bd693d50f0d) ![image](https://github.com/user-attachments/assets/8e667f10-c9a1-4125-a88b-d99c630c0363)
 ![image](https://github.com/user-attachments/assets/156a4340-6197-4ddc-9f6e-90035b42a504) 
-![image](https://github.com/user-attachments/assets/e2f3705b-eeb2-4758-81fe-50e7ab7029ae) 
 
-![image](https://github.com/user-attachments/assets/57982094-a537-4bee-8f9c-49db1766bbba) 
+
+![tumblr_88b154489dfcf0d0955ceac18fbd2d19_c604a29b_540](https://github.com/user-attachments/assets/0794b007-f660-4403-9476-ceeb9df6592e)
+
+
+
+<img width="100" height="100" alt="tumblr_3ed55293dd8adc10512f0f5a644e3353_bbd32b7c_640" src="https://github.com/user-attachments/assets/008b1546-fc4e-4de7-8ef6-e10e8ecf7830" />
+
 
